@@ -1,3 +1,4 @@
+![Portada Perfil de Linkedin Profesional Moderno Oscuro](https://github.com/user-attachments/assets/9e20b46b-752b-4884-8c8c-9595f5d7c471)
 
 
 
